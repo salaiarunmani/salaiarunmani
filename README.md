@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @salaiarunmani.j.b
-- 👀 I’m interested in Data Analayst.
+- 👀 I’m interested in Data Analasis.
 - 📫  reach me:https://www.linkedin.com/in/salaiarunmanijb/
